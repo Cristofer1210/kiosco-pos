@@ -55,6 +55,7 @@
   
 📬 Contacto
 Desarrollador: Cristofer
+
 Estado: Aprendiendo y construyendo día a día 🚀
 
 LinkedIn: (https://www.linkedin.com/in/cristofer-gallay-080577264/)
